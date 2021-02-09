@@ -1,4 +1,4 @@
-### Software Developer from California currently based in Tokyo
+### Software Developer from Southern California
 
 
 I enjoy creating things to make(my life) other's lives more simple. Interested in programming, skateboarding, and nerding out about music. 
